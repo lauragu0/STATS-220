@@ -14,7 +14,7 @@ Welcome to this little fun space :)
 4. Good Material
 5. Elenaor Oliphant is Completely Fine
 
-**Note**: The list above is not in any particular order 
+**Note**: The list above is in chronological order. 
 
 ### Photography 📷
   
